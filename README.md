@@ -9,3 +9,4 @@ and playing :guitar: and :soccer:
 cambios
 mas cambios
 
+ultimos cambios de la actividad
