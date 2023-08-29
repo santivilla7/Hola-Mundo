@@ -10,3 +10,6 @@ cambios
 mas cambios
 
 ultimos cambios de la actividad
+
+Nuevos cambios
+Del nuevo semestre
